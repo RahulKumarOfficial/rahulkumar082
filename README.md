@@ -2,7 +2,7 @@
 
 I work as an *Associate Software Engineer* at Bengaluru, Karnataka.
 
-Since my school days, I am into Programming💻, and dwelling in fields from Web Development to Machine Learning.😎🤩
+Since my school days, I am into Programming💻, and dwelling in fields from Web Development to Machine Learning and even blockchains.😎🤩
 
 Also I am super interested in Astronomy stuffs ☀🌑✨✨💫. You can always have a chat with me over Astronomy, ranging from Intelligent ETs👽 to Quasars.
 
